@@ -7,5 +7,5 @@
 
 im fifteen and i love music 
 
-lovefiles on discord!! for more socials go to my link tree! 
+l0vefiles on discord!! for more socials go to my link tree! 
 
