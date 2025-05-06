@@ -7,5 +7,5 @@
 
 im fifteen and i love music 
 
-l0vefiles on discord!! 
+dont ask for discord. you're not getting it unless we're close
 
