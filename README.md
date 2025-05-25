@@ -7,5 +7,3 @@
 
 im fifteen and i love music 
 
-dont ask for discord. you're not getting it unless we're close
-
